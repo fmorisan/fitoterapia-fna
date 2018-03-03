@@ -1,0 +1,21 @@
+# Revisión ORL
+- En la rinofaringitis si hay  fiebre se puede usar(marcar lo correcto)                                                                                             a) Quina b) Roble c) drosera d) ninguna de las anteriores
+- El gargarismo se prepara con ( marcar lo correcto) 
+    - [ ] 1 cucharada de TM en medio vaso de agua tibia 
+    - [ ] 1 cucharada de TM en un vaso de agua de agua tibia 
+    - [ ] Media cucharada sopera en medio vaso de agua tibia 
+    - [ ] ninguna de las anteriores
+- Los cuatro síntomas básicos de la rinofaringitis son (marcar lo correcto)  
+    - [ ] Fiebre 
+    - [ ] dolor muscular 
+    - [ ] excitación 
+    - [ ] síntomas respiratorios
+- Mencione cuales son los agentes infecciosos típicos en la bronquitis y cuales los agentes irritativos.
+- Defina la palabra mucolítico.
+- ¿ Que plantas son a la vez antialergénicas y antiinflamatorias?
+- ¿ cual es la causa de la tos improductiva?
+-  Completar los nombres de las áreas anatómicas de los senos.
+    - ![a](22/1.png)
+ 
+- ¿ cuales son las situaciones que promueven la aparición de la sinusitis?
+- Busque la definición de fiebre del heno.

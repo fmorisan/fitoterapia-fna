@@ -1,0 +1,11 @@
+# MATERIAL DE ESTUDIO VIAS DIGESTIVAS BAJAS ESTREÑIMIENTO parte 1 ( recordar visualizar este link): https://youtu.be/Hp3qBwcV0WE
+- ¿Que es lo que se absorbe en el intestino grueso?
+- Mencionar los componentes anatómicos del intestino grueso.
+- ¿ cuál es la longitud del intestino grueso por término medio?
+- Mnecionar los nombres de las cuatro capas que conforman el intestino grueso.
+- Mencionar la ubicación anatómica de la ampolla rectal
+- Explique como se define estreñimiento desde la óptica de la medicina occidental.
+- Mencione las causas mas importantes que promueven el estreñimiento.
+- Mencione al menos 4 enfermedades que pueden generar de manera secundaria estreñimiento.
+- Mencione al menos tres medicamentos que pueden producir estreñimiento.
+- ¿ que complicaciones físicas puede producir el estreñimiento?

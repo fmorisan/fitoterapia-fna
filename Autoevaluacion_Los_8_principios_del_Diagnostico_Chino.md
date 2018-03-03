@@ -1,0 +1,21 @@
+# Los Ocho Principios del Diagnóstico Chino
+
+- Explique como se diferencias as patologías de tipo externo de las de tipo interno.
+- ¿Cuáles son las características de los síntomas de las enfermedades de superficie?
+- ¿En las patologías de profundidad la penetración el agente patógeno en aguda o progresiva.?
+- La relación Interior-exterior se relaciona con la dirección en la que se desarrolla.
+    - Verdadero
+    - Falso
+- La afección por frío externo ( marcar la correcta)
+    - disminuye el yin
+    - disminuye el yang
+    - disminuye el Qi
+    - disminuye el Jing
+- Mencionar la sintomatología del síndrome mixto calor en superficie-frío en la profundidad.
+- Mencionar los síntomas típicos del síndrome de calor
+- ¿ A que se refieren los síndromes de vacío y plenitud?
+- ¿ Cuales pueden ser las  la etiologías del síndrome de plenitud y cuales los síntomas más típicos?
+- ¿Que síntomas y signos tendría una persona con un síndrome Yin ?
+- ¿ Existe el síndrome de plenitud de Yin?
+- ¿ Como sería la orina en una persona que tiene un síndrome yang?
+- Resolver los dos casos clínicos al final del material de estudio por las ocho reglas.
